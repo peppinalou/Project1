@@ -1,2 +1,2 @@
 #PeppinaLou
-#Hello :), my name is peppina!
+#Hello :), my name is peppina! Ich studiere biologie.
